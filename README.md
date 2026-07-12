@@ -1,1 +1,0 @@
-# galimidi.github.io
